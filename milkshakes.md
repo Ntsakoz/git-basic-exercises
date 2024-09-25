@@ -1,4 +1,0 @@
-Vanilla
-caramel
-chocholate
-Mmmmmm
